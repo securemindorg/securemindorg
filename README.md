@@ -37,7 +37,7 @@ With over **20 years of industry experience** and more than **a decade in academ
 - **LinkedIn**: [linkedin.com/in/joshuaswhitephd](https://www.linkedin.com/in/joshuaswhitephd)
 - **ResearchGate**: [Joshua S. White](https://www.researchgate.net/profile/Joshua-White-26)
 - **Google Scholar**: [Scholar Profile](https://scholar.google.com/citations?user=AI9XBA4AAAAJ&hl=en)
-- **ORCID**: [0000-0000-0000-0000](https://orcid.org/0000-0000-0000-0000)
+- **ORCID**: [[0000-0001-7433-9961](https://orcid.org/0000-0001-7433-9961)]
 
 ---
 
