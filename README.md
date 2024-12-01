@@ -34,6 +34,7 @@ With over **20 years of industry experience** and more than **a decade in academ
 
 ### 💬 **Let's Connect**
 
+- **Website**; [Personal Website](https://www.securemind.org)
 - **LinkedIn**: [linkedin.com/in/joshuaswhitephd](https://www.linkedin.com/in/joshuaswhitephd)
 - **ResearchGate**: [Joshua S. White](https://www.researchgate.net/profile/Joshua-White-26)
 - **Google Scholar**: [Scholar Profile](https://scholar.google.com/citations?user=AI9XBA4AAAAJ&hl=en)
